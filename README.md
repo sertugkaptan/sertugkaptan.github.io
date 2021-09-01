@@ -1,1 +1,0 @@
-# sertugkaptan.github.io
